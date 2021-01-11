@@ -1,2 +1,2 @@
 # Game-Over-
-Newbie
+I'm a Newbie here.
